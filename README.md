@@ -1,3 +1,1 @@
-# dnfuller.github.io
-
-Welcome to my personal portfolio!
+# My name is Desiree Fuller. Welcome to my personal portfolio!
